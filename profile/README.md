@@ -1,1 +1,1 @@
-Siege Perilous LLC is [Dave Snider](https://dave.snider.com)'s company. It is named from the [Arthurian legend](https://en.wikipedia.org/wiki/Siege_Perilous). [Table Slayer](https://tableslayer.com) is Siege Perilous' primary product.
+Siege Perilous LLC is [Dave Snider](https://davesnider.com)'s company and the marker of [Table Slayer](https://tableslayer.com). The name is an homage to an [Arthurian legend](https://en.wikipedia.org/wiki/Siege_Perilous). While I don't hope to find the Holy Grail, I do sit at my computer all day.
